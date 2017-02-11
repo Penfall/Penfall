@@ -1,5 +1,5 @@
 ---
-title: "Divisions of the Body"
+title: "Divisions of the Body Part 1: Pascha"
 layout: page
 ---
 
