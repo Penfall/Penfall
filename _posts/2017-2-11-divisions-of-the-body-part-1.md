@@ -6,7 +6,7 @@ layout: page
 Introduction
 -
 
-Wrestling may be broadly defined as a contest of bodily control. Though all forms of wrestling employ and reward this control in some manner, each style remains distinct.  This distinction is manifest in any particular style's conception, or divisions, of the body itself.  Any given style of wrestling will prioritize certain areas of the body for attack. An understanding this unique prioritization and the reasoning behind it is key to understanding a style of wrestling. 
+Wrestling may be broadly defined as a contest of bodily control. Though all forms of wrestling employ and reward this control in some manner, each style remains distinct.  This distinction is manifest in any particular style's conception, or divisions, of the body itself.  Any given style of wrestling will prioritize certain areas of the body for attack. An understanding of this unique prioritization and the reasoning behind it is key to understanding a style of wrestling. 
 
 
 Johann Georg Pascha's Divisions of the Body
