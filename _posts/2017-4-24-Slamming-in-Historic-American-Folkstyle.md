@@ -23,14 +23,14 @@ In the absence of a points system, a technique is only valuable insofar as it co
 The Leg and Shoulder Lift
 --
 
-The Leg and Shoulder lift would today be recognized as an almost textbook illegal slam.  A wrestler is elevated off of the ground to rest upon his opponent's shoulder entirely and is subsequently snapped forward such that his or her upper body strikes the ground with force.
+The Leg and Shoulder lift would today be recognized as an almost textbook illegal slam.  A wrestler is elevated off of the ground to rest upon his or her opponent's shoulder entirely and is subsequently snapped forward such that his or her upper body strikes the ground with force.
 
 **Step 1**
 
 
 ![](http://i.imgur.com/LKc8eXG.png)
 
-The position from which this technique is initiated is very similar to many techniques in the *Handbook.*  Like many others, this technique begins by exploiting an error in the opponent's stance to attack beneath their lines of defense.  With the knees bent, the lead leg is put forward into a shallow penetration and lead shoulder is imposed into the abdomen or hips of the opponent, ideally creating a slight incline in his or her posture.  
+The position from which this technique is initiated is very similar to many techniques in the *Handbook.*  Like many others, this technique begins by exploiting an error in the opponent's stance to attack beneath his or her lines of defense.  With the knees bent, the lead leg is put forward into a shallow penetration and lead shoulder is imposed into the abdomen or hips of the opponent, ideally creating a slight incline in his or her posture.  
 
 The text itself recommends that the aggressor's shoulder rest into the "chest," but this is not entirely accurate nor is it consistent with the rest of the technique.
 
