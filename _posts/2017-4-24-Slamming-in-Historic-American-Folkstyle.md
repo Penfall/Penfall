@@ -32,7 +32,7 @@ The Leg and Shoulder lift would today be recognized as an almost textbook illega
 
 The position from which this technique is initiated is very similar to many techniques in the *Handbook.*  Like many others, this technique begins by exploiting an error in the opponent's stance to attack beneath his or her lines of defense.  With the knees bent, the lead leg is put forward into a shallow penetration and lead shoulder is imposed into the abdomen or hips of the opponent, ideally creating a slight incline in his or her posture.  
 
-The text itself recommends that the aggressor's shoulder rest into the "chest," but this is not entirely accurate nor is it consistent with the rest of the technique.
+The text itself recommends that the aggressor's shoulder rest into the "chest," but this is not entirely consistent with the rest of the technique.
 
 Though a hold about both legs is adopted once the opponent has been elevated, the technique begins with a two handed attack upon the opponent's lead leg.  Instead of encircling this single leg, the aggressor's far arm reaches into the crotch and around while the near arm supports the opponent's kneecap. 
 
@@ -42,7 +42,7 @@ over his own shoulders..."  In more detail, the knee hold is not necessary to su
 
 The lifting mechanism is set in by applying the leg hold from the inside crotch with the hand being placed just below the opponent's gluteal muscle.  This grip does not, however, make up the entirety of the mechanism.  The aggressor's far shoulder, in obtaining the hold, should have come underneath the opponent's center, the optimal position for lifting.  The crotch hold is then used to lift the opponent backward while the aggressor comes to his or her feet underneath the opponent's center.  The opponent's upper body becomes a counterweight to his or her lower body and both are thus lifted from the ground.
 
-In truth, neither the knee hold nor the crotch hold are technically necessary for the completion of the lift.  If the opponent were to balance themselves upon the shoulders of the aggressor, he or she may be lifted without the use of the aggressor's arms at all.  Though this will not occur under live conditions, it should be understood that arms are not to be relied upon to complete the lifting action.
+In truth, neither the knee hold nor the crotch hold are technically necessary for the completion of the lift.  If the opponent were to balance his or her self upon the shoulders of the aggressor, he or she may be lifted without the use of the aggressor's arms at all.  Though this will not occur under live conditions, it should be understood that arms are not to be relied upon to complete the lifting action.
 
 
 **Step 2**
@@ -54,11 +54,11 @@ The second position of this technique is depicted in position 59 (mis-printed as
 
 The back, throughout this entire maneuver, should be kept straight and in a strong alignment with the hips.  This can be said of all maneuvers in Leonard's wrestling unless explicitly stated otherwise.  If such a posture was lost during a preceding segment of the technique, it should be regained by lowering levels and advancing the hips into their proper place.  
 
-The above admonitions are important because the lifting power comes from the hips, through the spine, and into the shoulder.  The often said and oftener true maxim applies: do not lift with the back.  The hips should be engaged in order to return the aggressor to an upright posture and to carry the opponent into the air.
+The above admonitions are important because the lifting power comes from the hips, through the spine, and into the shoulder.  The often said and oftener true maxim applies: one should not lift with the back.  The hips should be engaged in order to return the aggressor to an upright posture and to carry the opponent into the air.
 
 A second, less noticeable, adjustment must also be performed before the aggressor assumes the second position.  The aggressor's hands must clasp around both of the opponent's knees from the outside.  As when changing grips upon the mat, the aggressor should not attempt to move both hands simultaneously because in so doing they would completely lose control of the opponent.  Instead each hand should be moved individually while the opposite hand's hold is maintained.  
 
-Obviously, the hand that the aggressor first placed on the outside of the opponent's knee is closest to the intended placement for this part of the maneuver.  Thus, it should be moved first while the crotch hold is maintained.  The other arm must first be withdrawn from the crotch fully before it is reset around the opposite knee. Care should be taken that the shoulder upon which the opponent rests is not moved any great distance as the crotch hold is abandoned Once this is done, the second position may be assumed in full.
+Obviously, the hand that the aggressor first placed on the outside of the opponent's knee is closest to the intended placement for this part of the maneuver.  Thus, it should be moved first while the crotch hold is maintained.  The other arm must first be withdrawn from the crotch fully before it is reset around the opposite knee. Care should be taken that the shoulder upon which the opponent rests is not moved any great distance as the crotch hold is abandoned. Once this is done, the second position may be assumed in full.
 
 
 **Step 3**
@@ -68,7 +68,7 @@ Obviously, the hand that the aggressor first placed on the outside of the oppone
 
 The third step of this technique is fairly intuitive in execution and result.  The aggressor's upper body is thrown forward and the opponent's knees are drawn back; the combination of these two actions then whip the opponent to the ground.  Thus the two wrestler's find themselves in the third position.
 
-Unlike some other slamming techniques, the aggressor remains in essentially the same position even as the opponent is cast to the ground.  The aggressor does not follow his or her opponent to them mat with his or her weight, but rather remains upright.  This is done to maintain control of the opponent's legs.
+Unlike some other slamming techniques, the aggressor remains in essentially the same position even as the opponent is cast to the ground.  The aggressor does not follow his or her opponent to them mat with his or her weight, but rather remains upright.  This is done to maintain control of the opponent's legs and ensure the safety of the aggressor's head.
 
 The opponent's legs in the third position are not on the same side as they were in the second.  Where the opponent's entire body was hoisted upon Leonard's right shoulder, the final position has both of the opponent's feet on his left side.  Leonard has pulled the legs across his own body between the two positions.
 
@@ -88,7 +88,7 @@ Unlike the leg and shoulder lift, the double bridge (as it will be heretofore re
 ![](http://i.imgur.com/nEkm3Ff.png)
 
 
-Instead, Leonard suggests a position, in the preceding image, that may develop into a circumstance in which this technique may be applied.  In both a double armlock has been applied upon a wrestler with a chestlock upon his or her opponent.  In the double bridge, however, the wrestler maintaining the armlock is in the top position facing upwards. The upper wrestler's position is secure so long as his or her legs are spread apart, both roughly equidistant from the opponent's body.
+Instead, Leonard suggests a position, in the preceding image, that may develop into a circumstance in which this technique may be applied.  In both positions a double armlock has been applied upon a wrestler with a chestlock upon his or her opponent.  In the double bridge, however, the wrestler maintaining the armlock is in the top position facing upwards. The upper wrestler's position is secure so long as his or her legs are spread apart, both roughly equidistant from the opponent's body.
 
 
 ![](http://i.imgur.com/mpPdzhJ.png)
@@ -114,7 +114,6 @@ ground with more force than his neck can stand,
 thus causing him to settle upon his shoulders.
 
 
-These are the two primary methods of combating the bridge in Hugh Leonard's system, but one is clearly preferred.  The leg and shoulder lift is applied as a sequence that begins with an intentional and strategic entrance from a standing neutral position.  The double bridge has no such entrance described, and the suggested preceding position is disadvantageous to the aggressor. 
-
-It appears, from these and other aspects of the *Handbook* that simply bypassing the bridge entirely was preferred to breaking it once it had been created.  In either case, however, slams were an integral part of American Folkstyle Wrestling, both as part of complex sequential techniques and as reversals that changed the complexion of a match. 
+Slamming techniqes in *A Handbook of Wrestling* generally fall into one of the two above camps, 
+either preventing a bridge or breaking it.  Preventative measures are preferred, and these techniques are usually set-up from a neutral position.  Breaking bridges is still an important skill, but techniques that do so are usually included in reversals or other maneuvers from a disadvantageous or unusual position.  Also, as above, preventative techniques are generally done only once, and if done correctly almost certainly lead to victory; bridge breaking techniques in the *HandbooK* are repeatable and may be more effective cumulatively. These principles may, broadly speaking, be applied to all slams in historic american folkstyle wrestling.
 
