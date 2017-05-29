@@ -16,7 +16,7 @@
 title: Penfall
 email: contact@penfall.com
 description: > # this means to ignore newlines until "baseurl:"
- Anthropology through Combat Sports.
+ Anthropology Through Combat Sports.
 
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "penfall.com" # the base hostname & protocol for your site, e.g. http://example.com
