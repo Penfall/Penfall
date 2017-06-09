@@ -1,10 +1,4 @@
---
 
-Title:"Gadelha vs Kowalkievicz: the Myth of Defensive Wrestling"
-
-Layout:Page
-
---
 
 It took roughly seven seconds for UFC Straweight Claudia Gadelha to take her opponent down to the mat once she had secured her double-underhook clinch position.  Less than a minute later, she had won the match. This article is a moment-by-moment breakdown of why this occurred. 
 
