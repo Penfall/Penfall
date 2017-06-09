@@ -35,10 +35,14 @@ Failing to Escape from the Mat
 Ultimately, the match was decided by some of the most fundamental concepts of ground wrestling.
 
 
-![](http://i.imgur.com/tGcVvXa.png) **A Left-Side View**
+![](http://i.imgur.com/tGcVvXa.png) 
+
+**A Left-Side View**
 
 
-![](http://i.imgur.com/98ZVSis.png?1) **A Right-Side View**
+![](http://i.imgur.com/98ZVSis.png?1) 
+
+**A Right-Side View**
 
 
 Tom Jarman and Reid Hanley's *Wrestling for Beginners* divides the act of standing up from beneath a ride into three essential actions.  According to the book, fighting for and establishing good position, keeping one's back squared to the opponent, and controlling the opponent's hands are all necessary to a successful escape or reversal. Karolina Kowalkievicz's failure to escape can be most directly attributed to a failure to complete two of the above actions: establishing good position and controlling the opponent's hands.
@@ -54,12 +58,16 @@ Kowalkievicz's made her first error soon after her opponent had secured her lock
 Generally posting an a single arm from beneath a ride suggests a short sitout.  When making this post, however, the arm should be kept close to the body so as to prevent the opponent's securing an inside position; much the same as in standing wrestling.  Not only did Kowalkievicz fail to abide by this rule, she directly gave her opponent an inside position by swimming over Gadelha's arm.
 
 
-![](http://i.imgur.com/tK9bIof.png?1) **Gadelha's Wrist Control Highlighted**
+![](http://i.imgur.com/tK9bIof.png?1) 
+
+**Gadelha's Wrist Control Highlighted**
 
 
 Typically, in a short sitout, the under wrestler controls the same-side wrist of his or her opponent with the non-posting hand.  Instead, Kowalkievicz's right hand was controlled by Gadelha, who had an inside position on that side as well.
 
-![](http://i.imgur.com/i6jndOs.png?1) **Kowalkieviz's Body Alignment Relative to a Vertical Alignment**
+![](http://i.imgur.com/i6jndOs.png?1) 
+
+**Kowalkieviz's Body Alignment Relative to a Vertical Alignment**
 
 As mentioned above, Kowalkievicz's body position also bears a portion of the blame for the failure of her escape.  In an ideal circumstance, the under wrestler's feet, hips, and head would align into a more-or-less straight, vertical line; his or her weight would also be directed back, into the opponent.  The human body moves most efficiently forward along an imaginary line connecting the feet, hips, and head. Therefore, if someone wishes to create height, say to take a dominant wrestling position, he or she would be best served by a vertical alignment of these points. 
 
