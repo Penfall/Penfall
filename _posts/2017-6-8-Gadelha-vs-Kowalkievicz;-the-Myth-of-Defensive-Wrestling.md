@@ -93,6 +93,6 @@ In the first ground exchange, Kowalkievicz attempted to scramble away from her o
 Finally, from underneath the Brazilian fighter's ride, Kowalkievicz attempted to make her escape without fighting for any sort of favorable position.  She gave up an inside position on one side and wrist control on the other, all while remaining in an awkward, broken posture on the mat. Like Gadelha, the Polish fighter needed to secure hand control and impose her weight on her opponent.
 
 
-In the three above scenarios, essentially the entire grappling portion of the fight, the two fighters needed the same things to be successful.  Kowalkievicz's circumstances did not necessitate a special "defensive wrestling," but rather the same skills that her opponent was employing, if used from a position of disadvantage.  Here, as elsewhere, the concept of "defensive wrestling" had no tangibility, the was merely a successful wrestler and an unsuccessful one. 
+In the three above scenarios, essentially the entire grappling portion of the fight, the two fighters needed the same things to be successful.  Kowalkievicz's circumstances did not necessitate a special "defensive wrestling," but rather the same skills that her opponent was employing, if used from a position of disadvantage.  Here, as elsewhere, the concept of "defensive wrestling" had no tangibility, there was merely a successful wrestler and an unsuccessful one. 
 
 
