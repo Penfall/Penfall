@@ -1,8 +1,8 @@
 --
 
-Title: "Gadelha vs Kowalkievicz: the Myth of Defensive Wrestling"
+Title:"Gadelha vs Kowalkievicz: the Myth of Defensive Wrestling"
 
-Layout: Page
+Layout:Page
 
 --
 
