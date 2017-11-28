@@ -1,7 +1,4 @@
---
-Title: "The Underhook of Jersey Joe Walcott"
-Layout: Page
---
+
 
 Boxing and Wrestling and the quintessential pair of combat sports, both possessing antediluvian roots and almost universal practice in some form. 
 
