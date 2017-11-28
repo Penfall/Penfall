@@ -1,6 +1,6 @@
 
 
-Boxing and Wrestling and the quintessential pair of combat sports, both possessing antediluvian roots and almost universal practice in some form. 
+Boxing and Wrestling are the quintessential pair of combat sports, both possessing antediluvian roots and almost universal practice in some form. 
 
 
 Jersey Joe Walcott, Born Arnold Cream, did not hold the greatest record during his career as a professional boxer.  He did not have the longest title reign nor the most significant impact on popular culture.  What he did have was a fascinating and unusual path to the heavyweight championship of the world, made up of both a unique fighting style, tumultuous life, and a great underhook.
@@ -15,7 +15,7 @@ The most important and constant aspect of Jersey Joe's underhook is hybridizatio
 
 ![](https://i.imgur.com/JD8y9Pe.gif)
 
-Though a career boxer, Walcott was more than capable of appearing, if just for a moment, to be a wrestler of the same pedigree.  In the sequence shown above, Walcott adopts a wedge stance, changes level, and makes contact in a manner that be enviable among lifelong Greco-Roman wrestlers.  
+Though a career boxer, Walcott was more than capable of appearing, if just for a moment, to be a wrestler of the same pedigree.  In the sequence shown above, Walcott adopts a wedge stance, changes level, and makes contact in a manner that would be enviable among lifelong Greco-Roman wrestlers.  
 
 
 
@@ -70,6 +70,7 @@ Furthermore, this sequence shows elements of both attack and defense in differen
 The underhook satisfies a special consideration of inside fighting: perception.  When fighting from at or beyond arm's length, one can see the majority of an opponent's body and use visual cues reliably.  As the distance between two fighters shrinks, the amount of the body that is readily visible shrinks as well until, when infighting, a fighter may not be able to see anything useful.
 
 With this in mind, Jersey Joe's rapid head movement begins to make more sense.  He was able to feel, using his underhooking arm, Charles' short punches and move his head out of the way.  The head itself would only be displaced by a few inches, but in that range of fighting a few inches are more than enough.
+
 ***
 
 Throughout this article, the terms boxing and wrestling have been used dichotomously to each other, but in reality the above points show that such a dichotomy does not tangibly exist.  Labels and categories are used to simplify complex topics so that such such topics and ideas can be discussed practically.  In this case, movements and skills are divided between two combat sports, boxing and wrestling, even though both sports apply the same tools to achieve ultimately similar goals.
